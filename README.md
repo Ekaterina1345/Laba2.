@@ -1,1 +1,1 @@
-# Laba2.
+# https://vk.com/doc159233995_474938227?hash=315823951c15644cbb&dl=7c731e302e2eeefb5b
